@@ -1,0 +1,1 @@
+pour jouer au Blackjack sans jeton IRL
